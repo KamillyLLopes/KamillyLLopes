@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de KamillyLLopes😀
+## Bem-vinde ao perfil de KamillyLLopes😀
 
  <div>
    <a href="https://github.com/KamillyLLopes">
